@@ -1,0 +1,5 @@
+- Balen Shah (highest priority — everything about him comes first)
+- Kathmandu Metropolitan City
+- Kathmandu district
+- Bagmati Province
+- National politics (Nepal) only when connected to above
